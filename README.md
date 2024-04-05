@@ -9,3 +9,5 @@ However, I am terribly nervous about this new experience, I have a tendency to o
 *Praying for God's favor*
 
 **Learn by doing, keep practicing until I get it !!**
+
+A few months in not completely understanding everything but it's coming together
